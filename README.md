@@ -2,7 +2,7 @@
 
 **`Tech Executive Labs`**
 
-> Tech Executive Labs is a leading IT services and consulting startup firm specializing in the research and development of cutting-edge business technologies, encompassing software, mobile, and web applications
+> Tech Executive Labs is a leading IT services and consulting startup firm specializing in the research and development of cutting-edge business technologies, encompassing software, mobile, and web applications :)
     
 **`Connect With Us`**
 
